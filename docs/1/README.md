@@ -1,3 +1,3 @@
-Team Johnson: From Owie To Awoo
+Team Johnson: From Owie To Awoo!
 
-[The making-of video](/wolf/1/timelapse.mp4)
+[The updated making-of video with wolverine](/wolf/1/timelapse.mp4)
