@@ -1,0 +1,1 @@
+Using https://www.midjourney.com/ with the prompt "a wolf in a royal dress dressed up like a prince, in the style of realistic marine paintings, navy, celebrity portraits with personality, neo-victorian, louis, crisp, nabis"

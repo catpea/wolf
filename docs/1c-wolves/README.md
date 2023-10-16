@@ -1,0 +1,1 @@
+Using https://www.midjourney.com/ with the prompt "minimalist painting of a family of little dentist wolves in the style of Olivia De Berardinis, detailed, fall harvest landscape" (a prompt is the text you send to AI so that it knows what to generate)
